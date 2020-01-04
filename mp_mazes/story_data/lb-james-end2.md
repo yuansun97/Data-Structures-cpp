@@ -1,0 +1,1 @@
+LBJ and CP3 run a basketball club for young kids in LA. Many NBA players' kids join the club and many of them are talented to play in the NBA in the future.
